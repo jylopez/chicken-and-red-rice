@@ -1,5 +1,5 @@
 # chicken-and-red-rice
-The greatest sports tradtion of all time. 🐐
+The greatest sports tradition of all time. 🐐
 
 - 2009 Anne
 - 2010 Jershon*
