@@ -15,6 +15,7 @@ The greatest sports tradition of all time. 🐐
 - 2020 (RIP March Sadness)
 - 2021 Manny
 - 2022 Jericho 
-- 2023 Misty 👑
+- 2023 Misty
+- 2024 Jordan 👑
 
 <sub><sup>*Only Jershon and Shelly participated these years, but recognition is still given for historical purposes.</sup></sub>
